@@ -1,4 +1,4 @@
-### Hi there MSIZURP👋
+### Hi there MSIZILESE👋
 
 <!--
 **MsiziBandile/MsiziBandile** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
